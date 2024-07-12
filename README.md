@@ -1,3 +1,4 @@
+![github-cover](https://github.com/user-attachments/assets/dec56b23-8004-4fc2-8c9f-76482052b5bf)
 # Little_Lemon
 
 
